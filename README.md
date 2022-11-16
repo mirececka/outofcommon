@@ -1,2 +1,2 @@
-# outofcommon
-more ahojky
+#outofcommon
+mám rád milfky
